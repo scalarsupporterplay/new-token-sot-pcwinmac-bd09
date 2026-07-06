@@ -1,4 +1,4 @@
-# 
+# Lightweight new token sniper bot add-ons for Mac OS | Premium new token sniper bot add-ons for PC Windows. Featuring blockchain indexing and new token detection — optimized for maximum performance on every platform.
 
 
 
